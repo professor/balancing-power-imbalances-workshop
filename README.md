@@ -67,8 +67,11 @@ If you have experienced these situations, you may need time to sort through your
 
 * If you feel like sharing, did you see yourself in any of these stories? How did that make you feel?  
 
+* Have you ever experienced Story #8?
+
 * What is one thing you plan to do differently moving forward?
 
+* Thank you for attending. I'll now collect the pairing stories.
 
 ## (Optional) Collect feedback
 
