@@ -51,7 +51,7 @@ Any questions?
 
 ## Reading the stories
 
-< Hand the stories to the first person. >
+< Hand the stories to each person. Select one person to start reading. >
 
 ## Groups of 4 Debrief
 
@@ -61,7 +61,7 @@ If you have experienced these situations, you may need time to sort through your
 
 If you have experienced these situations, you may need time to sort through your experience. You can choose how much to share. We want this to be a safe place where we are listening without judgement. 
 
-## Entire room Debrief
+## Entire Room Debrief
 
 * We’ll convene all together to discuss what we've learned. Let's have people share in any order that they feel like. We'll do "popcorn" style, not a "round robin")
 
