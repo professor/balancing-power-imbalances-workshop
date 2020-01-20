@@ -41,7 +41,7 @@ We are going to hear experiences about pair programming. We will have time to li
 
 Some are short, some are long. Although personal pronouns are used in the stories, we’ve heard many of these stories across gender identities. 
 
-We will have a narrator read the story out loud, and then pause for a moment of reflection and journalling.   We'll be silent during this part of the workshop. For each story, you will "Write down one thing you learned from this passage."
+We will have a narrator read the story out loud, and then pause for a moment of reflection and journaling. We'll be silent during this part of the workshop. For each story, you will "Write down one thing you learned from this passage."
 
 We'll pass the stories around the room clockwise. If you'd prefer not to narrate, simply hand the stories to the next person. When you are done reading please give the room a chance to write down their thoughts before handing the stories to the next person. We'll let you be the judge of how long to wait. There is no perfect timing, let the room have a chance to absorb and process the story. Silence is ok.
 
@@ -57,9 +57,9 @@ Any questions?
 
 We will break into groups of four to discuss each story. During discussion and dialogue, we'd like to process what we just heard.
 
-If you have experienced these situations, you may need time to sort through your experience. You can choose how much to share. We want this to be a safe place where we are listening without judgement. 
+If you have experienced these situations, you may need time to sort through your experience. You can choose how much to share. We want this to be a safe place where we are listening without judgment. 
 
-If you have experienced these situations, you may need time to sort through your experience. You can choose how much to share. We want this to be a safe place where we are listening without judgement. 
+If you have not experienced these situations, you may need time to process what you are hearing.
 
 ## Entire Room Debrief
 
